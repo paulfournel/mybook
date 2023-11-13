@@ -1,1 +1,2 @@
-Chapter 6 sees the protagonists struggling to come to terms with the revelations from the previous chapter.
+# Chapter 6
+In the square, under the glow of a lone lamppost, a shadowy figure waited.
