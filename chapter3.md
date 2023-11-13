@@ -1,2 +1,1 @@
-## Chapter 3: The Discovery
-It was the summer of his 12th year when he made an astounding discovery; he found an anomaly in the school’s computer system. This anomaly wasn’t a bug, it was an intentionally hidden backdoor.
+Chapter 3 is all about tension once our heroes discover their common past and conflicting future. This chapter explores the inner battles waged within each character.
