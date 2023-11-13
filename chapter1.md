@@ -1,3 +1,1 @@
-## Chapter 1: The Beginning
-### Section 1: Introduction
-### Section 2: Background
+Chapter 1 begins with the introduction to the main characters and their seemingly ordinary life in school.
